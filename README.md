@@ -34,8 +34,8 @@ Apasionado por diseñar, construir y automatizar arquitecturas cloud escalables,
 
 ### 📫 Conecta conmigo
 
-- 📧 raul.pallas@inbest.cloud
-- 💼 LinkedIn: [tu-enlace-aquí]
+- 📧 raulpallas@proton.me
+- 💼 LinkedIn: [www.linkedin.com/in/raúl-francisco-pallás-talavera-64b6581a9]
 - 🌐 Blog / Portfolio: *próximamente*
 
 ---
